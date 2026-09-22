@@ -77,8 +77,7 @@ If you have any question about this policy, the app's data behavior, or anything
 
 Tami Rose
 Founder, Thirsting For Hope, Inc.
-Email: [insert contact email]
-Mailing address: [insert mailing address]
+Email: thirsting4hope.tamirose@gmail.com
 
 We read every message and respond personally.
 
